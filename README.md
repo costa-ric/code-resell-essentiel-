@@ -1,1 +1,1 @@
-# code-resell-essentiel-
+# code-resell-deluxe-
